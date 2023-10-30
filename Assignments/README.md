@@ -8,7 +8,7 @@
 
 # NM ID:8FF158C7294AA369918447C87986F54B
 (Barath Sankar S R)
-- __Blog Article__- https://www.aadalumpadalum.blogspot.com/2023/08/matram-ondre-maradhadhu.html
+- __Blog Article__- https://aadalumpadalum.blogspot.com/2023/08/matram-ondre-maradhadhu.html
 - __Facebook Page__- https://www.facebook.com/rddanceacademyrama
 - __Advertisment Post__- https://www.facebook.com/photo.php?fbid=122128410326021324&set=pb.61550639722701.-2207520000&type=3
 - __Email Newsletter__- https://aadalumpadalum.blogspot.com/2023/09/email-newsletter-thanks-for-subscribing.html
